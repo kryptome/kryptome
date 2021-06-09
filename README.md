@@ -101,7 +101,7 @@
 
 [Telegram]: https://t.me/kryp70
 
-[Discord]: https://t.me/kryp70
+[Discord]: https://discordapp.com/users/212114660697178114
 
   
 
