@@ -18,7 +18,7 @@
 
 - 👨‍💻 Currently working on multiple project in the Crypto and Automation Space.
 
-- 📚 Learning multiple technologies to attack problems better 😉, I don't marry one solution.
+- 📚 Learning multiple technologies to attack problems better 😇, I don't marry one solution.
 
 - ⚡ Fun fact: I like to repair broken stuff, teaches a lot about how things work.
 
